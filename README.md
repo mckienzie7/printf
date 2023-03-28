@@ -1,1 +1,1 @@
-Team project
+Team project by Mickey and Samuel
